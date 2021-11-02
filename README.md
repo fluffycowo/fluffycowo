@@ -1,0 +1,4 @@
+- 👋 Hi, I’m fluffycowo
+- 👀 I’m interested in, game development, smart people.
+- 🌱 I’m currently learning, programming
+- 📫 How to reach me? dont!
